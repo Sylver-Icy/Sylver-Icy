@@ -40,7 +40,7 @@ I’m currently seeking **internships, freelance projects, or part-time roles** 
 - Applied ML or data-driven tools  
 
 📫 **Contact:**  
-- ✉️ abhinavsingh.codes@gmail.com
+- ✉️ contact@abhinavsingh.codes
 - 💬 Discord: **sylver.icy**  
 ---
 
